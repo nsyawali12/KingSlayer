@@ -1,2 +1,2 @@
 # KingSlayer
-King Slayer is a project for Wallski who want to get conference someday
+King Slayer is a Operation Project for Wallski who want to get conference someday
